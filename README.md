@@ -15,3 +15,5 @@
  ─![](https://cdn.discordapp.com/attachments/1135445933073637436/1140897664704200714/pi138.gif) : DNI . . ─ RAID | SENSITIVE PEOPLE | PINTEREST SKINS | COPY CATS | UN-CANON SHIPS | NSFW | ETC ![](https://cdn.discordapp.com/emojis/1193070683127816253.gif?size=44&quality=lossless)
 
  YOU CAN FIND ME NEARBY DOCKS OR THE RATING LINE AREA ![](https://64.media.tumblr.com/f7050b4a08d86e958bfd7e044c0a72fb/f038ca304fd71af9-41/s75x75_c1/2c363ca720ed185fd47619a6ae93bb569c591099.gifv)
+ 
+don't copy my friend's skins and my oc's..
