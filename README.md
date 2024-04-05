@@ -1,1 +1,1 @@
-hai 
+hai play [pony town](https://pony.town)
