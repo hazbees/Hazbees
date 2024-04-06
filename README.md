@@ -1,1 +1,1 @@
-hai play [pony town](https://pony.town)
+hai play [pony town!!](https://pony.town)
