@@ -1,3 +1,3 @@
 ![](https://camo.githubusercontent.com/cdfd82e4b0a18666a86d1f13d1b17e8fbb69b84374c96433d41ecd765c9d7d35/68747470733a2f2f706978656c7361666172692e6e656f6369746965732e6f72672f7374616d70732f626f756e63652e676966)
 
-hai play [pony town!!](https://pony.town)
+hai play [pony town!!](https://pony.town) lol.
