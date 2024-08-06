@@ -1,3 +1,3 @@
 —﹙🍏﹚⑅   @hazbees
 
-what am i even doing..
+this github is in working progress. will be updated soon xp
