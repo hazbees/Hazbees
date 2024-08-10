@@ -3,7 +3,7 @@
  ɞ⠀.⠀An actual rblx/pt player﹗ ﹗໒꒱۪
 
 
-𖦹  — erm uh join my [**dead server xp**](https://discord.gg/dPRhM3hp) for the opinion erm! *(only for pony town users lolol)*
+𖦹  — yeh i think im turning into bloxtale fan..
 
 
 *please for those who hidden me for fuck sake. please explain first. i dont like people hiding me for no explanation.*
