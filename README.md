@@ -3,7 +3,7 @@
  ɞ⠀.⠀An actual rblx/pt player﹗ ﹗໒꒱۪
 
 
-𖦹  — **"yeh i think im turning into bloxtale fan.."**
+𖦹  — **"PLEASE INT IF YOUR BLOXTALE FAN PLZZ."**
 
 
 *please for those who hidden me for fuck sake. please explain first. i dont like people hiding me for no explanation.*
