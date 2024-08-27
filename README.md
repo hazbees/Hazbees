@@ -2,8 +2,8 @@
 
 ɞ⠀.⠀An actual rblx/pt player﹗ ﹗໒꒱۪ 
 
- 
-𖦹  — **"PLEASE INT IF YOUR BLOXTALE FAN PRETTTY PLZLZ."** 
+
+𖦹  — **"PLEASE INT IF YOUR BLOXTALE OR A MURDER DRONE FAN PRETTTY PLZLZ."** 
 
 
 *please for those who hidden me for fuck sake. please explain first. i dont like people hiding me for no explanation.* 
