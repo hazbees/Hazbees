@@ -3,7 +3,7 @@
 ɞ⠀.⠀An actual rblx/pt player﹗ ﹗໒꒱۪ 
 
 
-𖦹  — **"PLEASE INT IF YOUR BLOXTALE OR A MURDER DRONE OR EVEN DANDY'S WORLD FAN PRETTTY PLZLZ."** 
+𖦹  — **"PLEASE INT IF IM AFK!!"** 
 
 
 *please for those who hidden me for fuck sake. please explain first. i dont like people hiding me for no explanation.* 
