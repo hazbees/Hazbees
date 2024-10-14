@@ -14,8 +14,4 @@
 mareep silly pokemon creature
 
 
-![](https://i.pinimg.com/enabled/236x/93/70/f7/9370f7828dc230dfdf8d283d272e6d0f.jpg) 
-
-*please for those who hidden me for fuck sake. please explain first. i dont like people hiding me for no explanation.* 
-
 this github is in working progress. will be updated soon xp 
