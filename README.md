@@ -1,7 +1,7 @@
 —﹙🐾﹚⑅   @hazbees   (⠀˳ᴗ ᴗ) 
 
 ɞ⠀.⠀An actual rblx/pt player﹗ ﹗໒꒱۪ 
-![](https://komarev.com/ghpvc/?hazbees&color=green) 
+
 
 𖦹  — **"PLEASE INT IN MY WHISPERS IF IM AFK!!"** 
 
