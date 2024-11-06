@@ -4,5 +4,3 @@
 
 
 𖦹  — **"PLEASE INT IN MY WHISPERS IF IM AFK!!"** 
-
-yeah thats all, 
